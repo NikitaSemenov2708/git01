@@ -5,10 +5,7 @@
 
 
 
+Cеменов Никита
 
 
 
-
-Andrey Prusakov
-well done
-!!!
